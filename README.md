@@ -11,3 +11,7 @@
 <p align="center">
   <mark>I'm usually offtab whisper to interact or whatever</mark>
 </p>
+
+<p align="center">
+   <strong>oh yeah also i cant believe im sayng this DNI if you engage in cyberstalking, its a crime that is committed against victims. you can not justify that sorry not sorry ^_^ get out of my face if you do it.</strong>
+</p>
