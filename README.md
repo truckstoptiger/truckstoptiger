@@ -5,11 +5,11 @@
 </p>
 
 <p align="center">
-  I have a job and shit I do not care for your internet discourse live and let live man
+  i have a job and shit i do not care for your internet discourse live and let live man
 </p>
 
 <p align="center">
-  <mark>I'm usually offtab whisper to interact or whatever</mark>
+  <mark>i'm usually offtab whisper to interact or whatever</mark>
 </p>
 
 <p align="center">
