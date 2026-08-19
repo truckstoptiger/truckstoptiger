@@ -14,6 +14,6 @@
 
 <p align="center">
   <strong>
-    stop cyberstalking me robbie i havent thought about you in 4 years you just have a victim complex
+    dni if i've known you before and we aren't in contact anymore ok thanks
   </strong>
 </p>
